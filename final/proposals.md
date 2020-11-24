@@ -8,7 +8,7 @@
 - 09:21 - KJ - [✨ Text2Emoji ✨](https://docs.google.com/presentation/d/1H9VNdl306rjmGp0t-kitH3Rd5rlFJsJZWcfxNyNJG58/edit?usp=sharing)
 - 09:29 - Martin - [PROJECT CODENAME: GoodBoy 😇 / BadBoy 😈](https://docs.google.com/presentation/d/1kxpkrKR7Wimvr3ee0A3q05fU8Jx2JdFRRS4mIeJ0kQo/edit?usp=sharing)
 - 09:37 - Tracey - [project title](url)
-- 09:45 - DonNan - [project title](url)
+- 09:45 - DonNan - [Visualize](https://docs.google.com/presentation/d/10gOt4v9CsEDPJsWUhpTvzOR3CAyYha0H1EBPNEBOjRo/edit?usp=sharing)
 - 09:53 - Zeyao and Tianxu - [project title](url)
 - 10:01 -- Minyoung - [project title](url)
 - 10:09 -- Helen - [project title](url)
